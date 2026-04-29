@@ -39,7 +39,7 @@ Getting started is super easy! Just follow the tutorial below:
 
 1. Follow the video tutorial above.  
 2. Launch your RDP session.  
-3. Enjoy seamless Windows 11 experience with lightning-fast internet.  
+3. Enjoy seamless Windows 11 experience with GAY
 
 ---
 
